@@ -8,3 +8,5 @@ Ingredients:
 2 firm tomatoes finely chopped
 2 green onions finely chopped
 1/4 cup fresh mint finely chopped
+
+You can switch the bulgur out for couscous if you don't have any. 
