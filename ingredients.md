@@ -1,3 +1,4 @@
+Let's begin!
 Ingredients: 
 1/3 cup extra-virgin olive oil
 3 tablespoons lemon juice
@@ -10,3 +11,4 @@ Ingredients:
 1/4 cup fresh mint finely chopped
 
 You can switch the bulgur out for couscous if you don't have any. 
+Enjoy my recipe!
